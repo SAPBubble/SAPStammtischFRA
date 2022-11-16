@@ -35,7 +35,8 @@ Hier sammeln wir die Termine und Erinnerungen vergangener Treffen
 - 28\. September (Mittwoch) SAPStammtisch ApfelweinDax 
 - 31\. August (Mittwoch) SAPStammtisch Apfelwein Dax 
 - 20\. Juli (Mittwoch) SAPStammtisch Apfelwein Dax 
-- 08\. Juni (Mittwoch) SAPStammtisch Apfelwein DAX 
+- 08\. Juni (Mittwoch) SAPStammtisch Apfelwein DAX
+ 
 =======
 
 ### 2021 
