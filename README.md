@@ -2,7 +2,7 @@
 ![image](https://user-images.githubusercontent.com/2906185/169572009-3beb0ce0-e0c7-41e8-8b81-54f62cea7f5e.png)
 
 ## Nächste Termine:  
-+ 01\. März (Mi) 2023 geplant
++ 01\. März (Mi) 2023 19:00 im Apfelwein DAX
 ![SAP Stammtisch 2023-02-01](https://user-images.githubusercontent.com/5760151/214964566-954f215c-1614-4197-baba-5da2f4cbdb8a.jpg)
 
 |Für die Teilnehmeranmeldung:|
